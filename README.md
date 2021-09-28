@@ -4,3 +4,5 @@
 )
 ![21년10월_TM센터_ver1 0(크기90)_3](https://user-images.githubusercontent.com/90809249/135031059-727a7043-4d81-481f-94dd-0c8099c61a91.png)
 ![21년10월_TM센터_ver1 0(크기90)_4](https://user-images.githubusercontent.com/90809249/135031066-a832c0c6-1d0c-42e9-88ce-adc241e5a978.png)
+![간편입사(딥핑크)_1](https://user-images.githubusercontent.com/90809249/135040120-c26a3307-8e53-49a8-82a7-325d17d4c915.gif)
+![간편입사(블루)_1](https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif)
