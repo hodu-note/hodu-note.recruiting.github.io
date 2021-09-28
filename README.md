@@ -1,1 +1,6 @@
 ![21년9월_TM센터_ver2 0(크기90)](https://user-images.githubusercontent.com/90809249/135026655-7158add5-4e8f-4f97-8cd1-73a6519a907b.png)
+![21년10월_TM센터_ver1 0(크기90)_1](https://user-images.githubusercontent.com/90809249/135031005-e4f5bd26-9b9f-48a3-ba72-ecc939f273e7.png)
+![21년10월_TM센터_ver1 0(크기90)_2](https://user-images.githubusercontent.com/90809249/135031045-e0ae6da7-bbc8-4034-ad5e-a8c168453b20.png)
+)
+![21년10월_TM센터_ver1 0(크기90)_3](https://user-images.githubusercontent.com/90809249/135031059-727a7043-4d81-481f-94dd-0c8099c61a91.png)
+![21년10월_TM센터_ver1 0(크기90)_4](https://user-images.githubusercontent.com/90809249/135031066-a832c0c6-1d0c-42e9-88ce-adc241e5a978.png)
