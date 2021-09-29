@@ -7,3 +7,8 @@
 ![간편입사(딥핑크)_1](https://user-images.githubusercontent.com/90809249/135040120-c26a3307-8e53-49a8-82a7-325d17d4c915.gif)
 ![간편입사(블루)_1](https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif)
 ![21년10월_TM센터_ver2 0(크기90)_4](https://user-images.githubusercontent.com/90809249/135042206-6ad6f994-a19f-4e89-a004-0c9f20746721.png)
+![21년10월_TM센터_ver2 0(크기90)_4](https://user-images.githubusercontent.com/90809249/135235805-8e261968-a79f-4f81-a135-88b2bf5ba06b.png)
+![21년10월_TM센터_유료채널_ver1 0(크기90)_1](https://user-images.githubusercontent.com/90809249/135235812-d8e8761c-9634-4d2f-8064-b0e84fe03b05.png)
+![21년10월_TM센터_유료채널_ver1 0(크기90)_2](https://user-images.githubusercontent.com/90809249/135235817-58b124f0-8ae3-4354-9e58-6404d46c3dbf.png)
+![21년10월_TM센터_유료채널_ver1 0(크기90)_3](https://user-images.githubusercontent.com/90809249/135235819-9cc7c910-f0fa-4ae1-8901-a3abd43cdcbd.png)
+![21년10월_TM센터_유료채널_전체_ver1 0(크기90)_0](https://user-images.githubusercontent.com/90809249/135235820-0fbbc14d-3b21-4485-93da-e0b4f707dae6.png)
