@@ -14,3 +14,4 @@
 ![21년10월_TM센터_유료채널_ver1 0(크기90)_2](https://user-images.githubusercontent.com/90809249/135366710-022b14ae-2f91-4af5-9094-202235c487b5.png)
 ![흥국화재채용공고_21년10월_사고접수_ver3 0(크기 103)](https://user-images.githubusercontent.com/90809249/135945607-114f448d-17d1-44a3-87e1-acd199e0112b.png)
 ![흥국화재채용공고_21년10월_사고접수_ver3 0(크기 103)](https://user-images.githubusercontent.com/90809249/135948357-84729f13-83d9-4229-9d74-d6df399deb93.png)
+![흥국화재채용공고_21년10월_사고접수_ver4 0(크기 103)](https://user-images.githubusercontent.com/90809249/136891922-44a572f0-fae9-4d7a-87e8-f19cad877af1.png)
