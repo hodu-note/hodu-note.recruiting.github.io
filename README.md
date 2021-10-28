@@ -21,3 +21,4 @@
 ![21년11월_TM센터_유료채널_ver1 0(크기90)_3](https://user-images.githubusercontent.com/90809249/138988942-fe883c6f-28fe-4d43-8ffd-785439a5369d.png)
 )
 ![21년11월_TM센터_유료채널_전체_ver1 0(크기90)_0](https://user-images.githubusercontent.com/90809249/138988951-294459fd-e955-4865-9252-10065690854a.png)
+![21년11월_TM센터_유료채널_ver2 0(크기90)_3](https://user-images.githubusercontent.com/90809249/139176880-5a3ee5ef-7db9-463b-a3ed-37659d1b9e7e.png)
