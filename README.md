@@ -7,3 +7,4 @@
 ![흥국화재채용공고_21년11월_안양_ver5 0(크기 103)](https://user-images.githubusercontent.com/90809249/142983097-3c902903-652f-461b-b7d9-a755644c4dc9.png)
 <a href="http://naver.me/FT0J7JQ3" target="_n">
 <img src="https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif"></a><br><br>
+![흥국화재채용공고_21년11월_안양_ver5 0(크기 103)](https://user-images.githubusercontent.com/90809249/143172410-f66a602f-2374-4331-a997-7098fccb7784.png)
