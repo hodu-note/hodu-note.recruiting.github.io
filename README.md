@@ -12,3 +12,4 @@
 ![흥국화재채용공고_21년12월_서울_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/144007183-4fc9e9c8-d7ec-4802-bb5b-6af725d763a5.png)
 ![흥국화재채용공고_21년12월_피크_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/144192433-c0cee6c8-a522-4250-80b3-be2452c68a91.png)
 ![흥국화재채용공고_21년12월_서울_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/144192437-72e8ba39-1982-48f7-9f2a-24ac60e222c0.png)
+![흥국화재채용공고_21년12월_피크_ver3 0(크기 103)](https://user-images.githubusercontent.com/90809249/146307273-089ca3a6-3015-4ce7-bd91-8c283ef2ce1b.png)
