@@ -14,3 +14,4 @@
 ![흥국화재채용공고_21년12월_서울_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/144192437-72e8ba39-1982-48f7-9f2a-24ac60e222c0.png)
 ![흥국화재채용공고_21년12월_피크_ver3 0(크기 103)](https://user-images.githubusercontent.com/90809249/146307273-089ca3a6-3015-4ce7-bd91-8c283ef2ce1b.png)
 ![21년12월_쇼핑엔티(주간8H)_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/147052214-9f183a0e-dd21-4de3-8446-08ac37e2c5be.png)
+![22년1월_쇼핑엔티(주간8H)_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/147617320-bd6bc320-c7f0-4a9f-85b1-f9ceeb71f022.png)
