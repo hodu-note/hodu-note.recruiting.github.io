@@ -24,3 +24,4 @@
 ![흥국화재채용공고_22년1월_서울_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/148719734-fc20d93e-f9cf-49c6-ab04-13bad06752f1.png)
 ![흥국화재채용공고_22년1월_서울_카카오채널_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/148719737-1b0a07e1-3018-4cd6-9590-c6258bfbcece.png)
 ![흥국화재채용공고_22년1월_서울_카카오추가_블로그용_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/148719740-649675ed-6aca-4b8d-b704-97d25aade263.png)
+![카카오채널추가_3](https://user-images.githubusercontent.com/90809249/148723128-9f90d07f-65cf-484f-bd03-d6619cd6f625.PNG)
