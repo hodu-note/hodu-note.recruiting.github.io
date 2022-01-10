@@ -21,3 +21,6 @@
 ![카카오채널추가_1](https://user-images.githubusercontent.com/90809249/148708387-c5559aa8-73ae-46c0-bd8e-4dee233e50a4.PNG)
 ![카카오채널추가](https://user-images.githubusercontent.com/90809249/148708392-912929d1-31fa-42ee-a34e-7e335aab85ce.PNG)
 ![카카오채널추가_2](https://user-images.githubusercontent.com/90809249/148708533-97a4783a-f975-4f7f-88d6-a93e4f3e5e3e.PNG)
+![흥국화재채용공고_22년1월_서울_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/148719734-fc20d93e-f9cf-49c6-ab04-13bad06752f1.png)
+![흥국화재채용공고_22년1월_서울_카카오채널_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/148719737-1b0a07e1-3018-4cd6-9590-c6258bfbcece.png)
+![흥국화재채용공고_22년1월_서울_카카오추가_블로그용_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/148719740-649675ed-6aca-4b8d-b704-97d25aade263.png)
