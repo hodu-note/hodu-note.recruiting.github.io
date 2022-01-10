@@ -20,3 +20,4 @@
 ![22년1월_쇼핑엔티(주간8H)_카카오채널추가ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/148708384-02871267-79af-4d41-9e54-0de3ad3c2890.png)
 ![카카오채널추가_1](https://user-images.githubusercontent.com/90809249/148708387-c5559aa8-73ae-46c0-bd8e-4dee233e50a4.PNG)
 ![카카오채널추가](https://user-images.githubusercontent.com/90809249/148708392-912929d1-31fa-42ee-a34e-7e335aab85ce.PNG)
+![카카오채널추가_2](https://user-images.githubusercontent.com/90809249/148708533-97a4783a-f975-4f7f-88d6-a93e4f3e5e3e.PNG)
