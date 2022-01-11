@@ -26,3 +26,5 @@
 ![흥국화재채용공고_22년1월_서울_카카오추가_블로그용_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/148719740-649675ed-6aca-4b8d-b704-97d25aade263.png)
 ![카카오채널추가_3](https://user-images.githubusercontent.com/90809249/148723128-9f90d07f-65cf-484f-bd03-d6619cd6f625.PNG)
 ![홍보글](https://user-images.githubusercontent.com/90809249/148882493-aebf4b3a-66b0-48c9-9806-0cf31470157a.PNG)
+![22년1월_쇼핑엔티(주간8H)_카카오채널추가ver2 0(크기95)](https://user-images.githubusercontent.com/90809249/148884487-4ada504b-c49f-4dea-abb1-20c17392a06d.png)
+![22년1월_쇼핑엔티(주간8H)_카카오채널추가ver3 0(크기95)](https://user-images.githubusercontent.com/90809249/148884491-0d93a41a-204a-429e-9a19-c929a828c673.png)
