@@ -28,3 +28,5 @@
 ![홍보글](https://user-images.githubusercontent.com/90809249/148882493-aebf4b3a-66b0-48c9-9806-0cf31470157a.PNG)
 ![22년1월_쇼핑엔티(주간8H)_카카오채널추가ver2 0(크기95)](https://user-images.githubusercontent.com/90809249/148884487-4ada504b-c49f-4dea-abb1-20c17392a06d.png)
 ![22년1월_쇼핑엔티(주간8H)_카카오채널추가ver3 0(크기95)](https://user-images.githubusercontent.com/90809249/148884960-1b9f2574-6775-4375-a43a-cc0321403f88.png)
+![22년2월_쇼핑엔티(주간8H)_블로그용_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/149442303-ea9c6519-445a-47fc-bfcb-27543b427723.png)
+![22년2월_쇼핑엔티(주간8H)_카카오채널추가ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/149442306-3183d70e-3df5-49bd-a590-880917beb4b3.png)
