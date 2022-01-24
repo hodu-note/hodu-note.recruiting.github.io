@@ -35,3 +35,5 @@
 ![흥국화재채용공고_22년2월_피크팀_카카오추가_블로그용_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/149727644-5fdeabc7-123d-4737-a730-48f370513446.png)
 ![흥국화재채용공고_22년2월_피크팀_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/149727796-5557d4f3-3ff2-4fb9-8f37-b0cdc1d00698.png)
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가ver4 0(크기95)](https://user-images.githubusercontent.com/90809249/150091479-d8f49141-ddac-472f-a012-95945a7013ba.png)
+![22년2월_쇼핑엔티(주간8H)_카카오채널추가ver5 0(크기95)](https://user-images.githubusercontent.com/90809249/150728112-c7a52673-745b-4b9a-9fac-d1f6cdd5dc88.png)
+![22년2월_쇼핑엔티(주간8H)_블로그용_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/150728113-cc965c1f-a656-4a69-9296-cad77a79ec2b.png)
