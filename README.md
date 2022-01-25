@@ -32,7 +32,8 @@
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/149442306-3183d70e-3df5-49bd-a590-880917beb4b3.png)
 ![흥국화재채용공고_22년2월_피크팀_카카오채널_메인사진_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/149727635-f28ec6d1-f35a-4350-a437-58ca956977a3.png)
 ![흥국화재채용공고_22년2월_피크팀_카카오채널_설명_2ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/149727640-bc4fb5cc-1ce9-4661-a731-9d7ac7e83c7f.png)
-![흥국화재채용공고_22년2월_피크팀_카카오추가_블로그용_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/149727644-5fdeabc7-123d-4737-a730-48f370513446.png)
+![흥국화재채용공고_22년2월_피크팀_카카오채널_설명_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/150920244-a9b5f0d6-e9e1-4c45-9a91-cf568f670006.png)
+
 ![흥국화재채용공고_22년2월_피크팀_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/149727796-5557d4f3-3ff2-4fb9-8f37-b0cdc1d00698.png)
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가ver4 0(크기95)](https://user-images.githubusercontent.com/90809249/150091479-d8f49141-ddac-472f-a012-95945a7013ba.png)
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가ver5 0(크기95)](https://user-images.githubusercontent.com/90809249/150728112-c7a52673-745b-4b9a-9fac-d1f6cdd5dc88.png)
