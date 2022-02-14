@@ -1,18 +1,7 @@
 ![간편입사(딥핑크)_1](https://user-images.githubusercontent.com/90809249/135040120-c26a3307-8e53-49a8-82a7-325d17d4c915.gif)
 ![간편입사(블루)_1](https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif)
-![흥국화재채용공고_21년11월_서울_ver4 0(크기 103)](https://user-images.githubusercontent.com/90809249/142801664-60ef23b4-a893-40ef-9e6b-110c1705f4c6.png)
-![흥국화재채용공고_21년11월_안양_ver4 0(크기 103)](https://user-images.githubusercontent.com/90809249/142801670-3f878e99-55ab-4c82-bb13-6c51ade52574.png)
-![흥국화재채용공고_21년11월_피크_ver3 0(크기 103)](https://user-images.githubusercontent.com/90809249/142801877-45d0236f-b9a9-4f74-ad9a-30887d1206b8.png)
-![흥국화재채용공고_21년11월_서울_ver5 0(크기 103)](https://user-images.githubusercontent.com/90809249/142983093-e3b709eb-558b-4990-abb5-a167bc8050e7.png)
-![흥국화재채용공고_21년11월_안양_ver5 0(크기 103)](https://user-images.githubusercontent.com/90809249/142983097-3c902903-652f-461b-b7d9-a755644c4dc9.png)
 <a href="http://naver.me/FT0J7JQ3" target="_n">
 <img src="https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif"></a><br><br>
-![흥국화재채용공고_21년11월_안양_ver5 0(크기 103)](https://user-images.githubusercontent.com/90809249/143172410-f66a602f-2374-4331-a997-7098fccb7784.png)
-![흥국화재채용공고_21년12월_피크_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/143552437-d5bac5ec-c35c-4077-9e93-abbab978e9c6.png)
-![흥국화재채용공고_21년12월_서울_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/144007183-4fc9e9c8-d7ec-4802-bb5b-6af725d763a5.png)
-![흥국화재채용공고_21년12월_피크_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/144192433-c0cee6c8-a522-4250-80b3-be2452c68a91.png)
-![흥국화재채용공고_21년12월_서울_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/144192437-72e8ba39-1982-48f7-9f2a-24ac60e222c0.png)
-![흥국화재채용공고_21년12월_피크_ver3 0(크기 103)](https://user-images.githubusercontent.com/90809249/146307273-089ca3a6-3015-4ce7-bd91-8c283ef2ce1b.png)
 ![21년12월_쇼핑엔티(주간8H)_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/147052214-9f183a0e-dd21-4de3-8446-08ac37e2c5be.png)
 ![22년1월_쇼핑엔티(주간8H)_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/147617320-bd6bc320-c7f0-4a9f-85b1-f9ceeb71f022.png)
 ![22년1월_쇼핑엔티(주간8H)_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/147798462-32c62750-806d-454c-81e9-ec5ea4e01db6.png)
