@@ -32,3 +32,5 @@
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가_ver7 0(크기95)](https://user-images.githubusercontent.com/90809249/153563112-73d5128e-f707-40df-834e-59500172e2ba.png)
 ![22년2월_쇼핑엔티(고객감동CS)_카카오채널추가_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/153563139-4c2d4775-1c78-47b4-8fdb-699f8d80b455.png)
 ![흥국화재채용공고_22년3월_피크팀_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/153784209-df526def-fb7f-47cd-a529-82c8781edaac.png)
+![서울_화재공고_22년2월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/154007686-1d1011da-a184-4d75-be09-78bcdb8d1bd1.png)
+![서울_화재공고_22년2월_카카오채널_메인사진_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/154007694-cc1ed7ca-42f1-46fa-9e8e-fae6df98d444.png)
