@@ -34,3 +34,5 @@
 ![흥국화재채용공고_22년3월_피크팀_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/153784209-df526def-fb7f-47cd-a529-82c8781edaac.png)
 ![서울_화재공고_22년2월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/154007686-1d1011da-a184-4d75-be09-78bcdb8d1bd1.png)
 ![서울_화재공고_22년2월_카카오채널_메인사진_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/154007694-cc1ed7ca-42f1-46fa-9e8e-fae6df98d444.png)
+![서울_화재공고_22년2월_카카오채널_설명_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/154648414-1a0d82f5-4087-4ea2-9373-f53dd95ddefb.png)
+![흥국화재채용공고_22년2월_피크팀_카카오채널_설명_ver3 0(크기 103)](https://user-images.githubusercontent.com/90809249/154648421-ad013f2b-ae49-4549-b31d-b9801000797b.png)
