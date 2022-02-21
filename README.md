@@ -38,3 +38,4 @@
 ![서울_화재공고_22년2월_카카오채널_설명_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/154649617-c75b6010-c61b-426b-b00e-8c2172ab3cf8.png)
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가ver6 0(크기95)](https://user-images.githubusercontent.com/90809249/154651047-4f556cdf-f44d-4aff-89ed-c8ab0fb5a534.png)
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가_ver8 0(크기95)](https://user-images.githubusercontent.com/90809249/154652728-601ebd5a-c91f-4bed-830c-bac574fe8bc9.png)
+![22년2월_쇼핑엔티(주간8H)_카카오채널추가_ver9 0(크기95)](https://user-images.githubusercontent.com/90809249/154895989-6b5b4a53-f141-42d9-9539-05530886088c.png)
