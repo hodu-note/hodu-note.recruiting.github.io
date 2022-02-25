@@ -41,3 +41,4 @@
 ![22년2월_쇼핑엔티(주간8H)_카카오채널추가_ver9 0(크기95)](https://user-images.githubusercontent.com/90809249/154895989-6b5b4a53-f141-42d9-9539-05530886088c.png)
 ![22년3월_쇼핑엔티(고객감동CS)_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/155680559-acfbc226-3af2-4eb0-8319-1a32aa9f9dab.png)
 ![22년3월_쇼핑엔티(주간8H)_블로그용_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/155680572-30300dc5-4f1f-4951-a606-60841127967a.png)
+![22년3월_쇼핑엔티(주간8H)_블로그용_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/155681923-934d9736-8265-418a-a138-0f3835d19e61.png)
