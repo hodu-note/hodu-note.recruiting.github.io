@@ -44,3 +44,4 @@
 ![22년3월_쇼핑엔티(주간8H)_블로그용_ver1 0(크기95)](https://user-images.githubusercontent.com/90809249/155681923-934d9736-8265-418a-a138-0f3835d19e61.png)
 ![안양_화재공고_22년2월_카카오채널_메인사진_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/156302756-8220c724-a932-44cc-9b1d-a9859c4aefa2.png)
 ![안양_화재공고_22년3월_카카오채널_설명_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/156302761-0a6f7b99-5117-4384-8cac-476314b28eb5.png)
+![화재콜센터메인](https://user-images.githubusercontent.com/90809249/156304354-485e5783-2c85-4c1f-858f-d12466edfbde.png)
