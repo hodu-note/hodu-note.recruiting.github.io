@@ -45,3 +45,5 @@
 ![안양_화재공고_22년2월_카카오채널_메인사진_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/156302756-8220c724-a932-44cc-9b1d-a9859c4aefa2.png)
 ![안양_화재공고_22년3월_카카오채널_설명_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/156302761-0a6f7b99-5117-4384-8cac-476314b28eb5.png)
 ![화재콜센터메인](https://user-images.githubusercontent.com/90809249/156304354-485e5783-2c85-4c1f-858f-d12466edfbde.png)
+![서울_화재공고_22년3월_주말_카카오채널_설명_ver1 0(크기_103)](https://user-images.githubusercontent.com/90809249/159432039-4507e05a-fea3-4a0e-83d4-071be361255a.png)
+![흥국화재채용공고_22년_주말_카카오채널_메인사진_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/159432040-e644fa1b-4d78-4d32-9067-6d9d61596c4c.png)
