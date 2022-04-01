@@ -44,3 +44,4 @@
 ![흥국화재_안양공고_수정본](https://user-images.githubusercontent.com/90809249/160519151-0cd92f9a-4fe9-463b-8025-d590166e736a.png)
 ![흥국화재_서울공고_수정본_2](https://user-images.githubusercontent.com/90809249/161242100-98f69dd4-1fd0-4ff9-b6b9-13bc7ba9b0cf.png)
 ![흥국화재_안양공고_수정본_2](https://user-images.githubusercontent.com/90809249/161242104-a29f0df5-259e-4886-91be-3a84fab48f90.png)
+![흥국화재_안양공고_수정본_2](https://user-images.githubusercontent.com/90809249/161242511-656b5642-5dc5-417a-8d12-98e6e5b2843d.png)
