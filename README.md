@@ -49,3 +49,4 @@
 ![흥국화재_서울공고_수정본_2](https://user-images.githubusercontent.com/90809249/162564768-d27346e1-d581-48bf-8a07-da54013cacea.png)
 ![서울_화재공고_22년4월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/162866050-e1f41c65-d2a5-4d49-aa3a-b5759ea1cb9f.png)
 ![서울_화재공고_22년4월_주말_카카오채널_설명_ver1 0(크기_103)](https://user-images.githubusercontent.com/90809249/164385850-7902668a-1dda-4462-adbb-e841fb21c97c.png)
+![서울_화재공고_22년4월_주말_카카오채널_설명_ver2 0(크기_103)](https://user-images.githubusercontent.com/90809249/165003339-5db03a28-18d0-4d99-b049-9501d295c25e.png)
