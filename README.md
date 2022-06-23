@@ -53,3 +53,7 @@
 ![흥국화재채용공고_22년_주말_카카오채널_메인사진_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/166392659-4c82e71d-b53c-4258-97eb-987868c8ecf2.png)
 ![서울_화재공고_22년4월_주말_카카오채널_설명_ver3 0(크기_103)](https://user-images.githubusercontent.com/90809249/166392652-b7a70242-4d5f-436d-86d2-bd723d421e43.png)
 ![서울_화재공고_22년6월_주말_카카오채널_설명_ver1 0(크기_103)](https://user-images.githubusercontent.com/90809249/171791568-0b83fc44-1304-45ff-a164-c2ef61f37958.png)
+![메인사진(크기100)1](https://user-images.githubusercontent.com/90809249/175222170-f585b42e-e6b9-4344-8140-aa7d3298a1e1.png)
+![공고내용4(크기130)](https://user-images.githubusercontent.com/90809249/175222183-f2470b15-ae21-4133-8d74-c3e97dc0d449.png)
+![카카오채널버튼_1](https://user-images.githubusercontent.com/90809249/175222203-bcf2447e-7ff0-44da-b675-9de057a34fb2.PNG)
+![카카오채널추가_2](https://user-images.githubusercontent.com/90809249/175222219-8029e478-6313-4478-93e6-3e30b30bd0f9.PNG)
