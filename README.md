@@ -59,3 +59,4 @@
 ![카카오채널추가_2](https://user-images.githubusercontent.com/90809249/175222219-8029e478-6313-4478-93e6-3e30b30bd0f9.PNG)
 ![메인사진(크기85)](https://user-images.githubusercontent.com/90809249/175229653-e3dea82c-a44e-4dd6-b6cd-06f1e4847bcd.png)
 ![공고내용3(크기100)](https://user-images.githubusercontent.com/90809249/175229674-3c4646a7-f900-43df-a137-9003c3f91366.png)
+![공고내용3(크기100)](https://user-images.githubusercontent.com/90809249/175259037-bf4aeebf-58bd-4c62-b87b-37df742cd37f.png)
