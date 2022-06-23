@@ -57,3 +57,5 @@
 ![공고내용4(크기130)](https://user-images.githubusercontent.com/90809249/175222183-f2470b15-ae21-4133-8d74-c3e97dc0d449.png)
 ![카카오채널버튼_1](https://user-images.githubusercontent.com/90809249/175222203-bcf2447e-7ff0-44da-b675-9de057a34fb2.PNG)
 ![카카오채널추가_2](https://user-images.githubusercontent.com/90809249/175222219-8029e478-6313-4478-93e6-3e30b30bd0f9.PNG)
+![메인사진(크기85)](https://user-images.githubusercontent.com/90809249/175229653-e3dea82c-a44e-4dd6-b6cd-06f1e4847bcd.png)
+![공고내용3(크기100)](https://user-images.githubusercontent.com/90809249/175229674-3c4646a7-f900-43df-a137-9003c3f91366.png)
