@@ -62,3 +62,4 @@
 ![공고내용3(크기100)](https://user-images.githubusercontent.com/90809249/175259037-bf4aeebf-58bd-4c62-b87b-37df742cd37f.png)
 ![메인사진2(크기85)](https://user-images.githubusercontent.com/90809249/175885945-64da9ceb-56e5-4be5-95b3-683511938138.png)
 ![공고내용4(크기100)](https://user-images.githubusercontent.com/90809249/175885954-4bd216e6-e947-48c7-83b4-be00e04fb9e5.png)
+![공고내용5_상시채용(크기100)](https://user-images.githubusercontent.com/90809249/176334558-8459120b-13c1-40e1-a180-5e6156fe0337.png)
