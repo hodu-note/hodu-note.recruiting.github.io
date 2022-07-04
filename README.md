@@ -65,3 +65,6 @@
 ![공고내용5_상시채용(크기100)](https://user-images.githubusercontent.com/90809249/176334558-8459120b-13c1-40e1-a180-5e6156fe0337.png)
 ![CS메인사진(크기85)](https://user-images.githubusercontent.com/90809249/176838291-1f2802b9-937e-426b-9065-d83beb9b0a17.png)
 ![CS공고내용1(크기100)](https://user-images.githubusercontent.com/90809249/176838296-91ea6931-bbb6-4f25-a2ea-e615982b752e.png)
+![서울_화재공고_22년2월_카카오채널_메인사진_ver2 0(크기 103)](https://user-images.githubusercontent.com/90809249/177118608-2ac8595f-8d16-4a04-8997-4a4426da65a7.png)
+![서울_화재공고_22년6월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/177118707-c7af6c36-c562-4749-9670-ef4a1fa1612d.png)
+![흥국화재채용공고_22년2월_피크팀_카카오채널_설명_2ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/177118878-846dd3d2-f635-498c-b380-4a48fe37ae0b.png)
