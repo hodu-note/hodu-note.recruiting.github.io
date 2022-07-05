@@ -69,3 +69,7 @@
 ![서울_화재공고_22년6월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/177118707-c7af6c36-c562-4749-9670-ef4a1fa1612d.png)
 ![흥국화재채용공고_22년2월_피크팀_카카오채널_설명_2ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/177118878-846dd3d2-f635-498c-b380-4a48fe37ae0b.png)
 ![서울_화재공고_22년6월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/177121395-469c91a1-0bc4-4745-b3b1-d4416e536898.png)
+
+![서울_화재공고_22년6월_카카오채널_메인사진_ver1 0(크기 83)](https://user-images.githubusercontent.com/90809249/177229904-69af726e-cbd2-4e74-9cff-859d671c5fec.png)
+![서울_화재공고_22년6월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/177229880-439c7e1f-3a5b-455a-863c-8b92ccf3143f.png)
+![흥국화재채용공고하단_22년6월_(크기 83)](https://user-images.githubusercontent.com/90809249/177229894-d13e393a-6f99-45fb-84f7-9917b5eaeacf.png)
