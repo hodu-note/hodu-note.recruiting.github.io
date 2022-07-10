@@ -25,3 +25,4 @@
 ![화재_메인사진(크기85)](https://user-images.githubusercontent.com/90809249/177962758-8602133a-dad6-455f-81e6-306d8c55ba27.png)
 ![화재_공고내용1(크기100)](https://user-images.githubusercontent.com/90809249/177962764-058b40fc-7e18-4b4c-9d20-a1522e93aec9.png)
 ![화재_공고내용1(크기100)](https://user-images.githubusercontent.com/90809249/177965044-c9fef1e1-f9cb-4085-aee1-8d10d8956b06.png)
+![화재_공고내용1(크기100)](https://user-images.githubusercontent.com/90809249/178166234-ee9f4edc-d6e2-492c-801b-49142250384a.png)
