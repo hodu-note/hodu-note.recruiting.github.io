@@ -22,11 +22,6 @@
 ![서울_화재공고_22년6월_카카오채널_설명_ver1 0(크기 103)](https://user-images.githubusercontent.com/90809249/177229880-439c7e1f-3a5b-455a-863c-8b92ccf3143f.png)
 ![흥국화재채용공고하단_22년6월_(크기 83)](https://user-images.githubusercontent.com/90809249/177229894-d13e393a-6f99-45fb-84f7-9917b5eaeacf.png)
 ![안양_화재공고_22년6월_카카오채널_설명_ver1 0(크기 83)](https://user-images.githubusercontent.com/90809249/177255028-7e1732e7-5351-4c60-88d5-fe9172bbd648.png)
-![화재_메인사진(크기85)](https://user-images.githubusercontent.com/90809249/177962758-8602133a-dad6-455f-81e6-306d8c55ba27.png)
-![화재_공고내용1(크기100)](https://user-images.githubusercontent.com/90809249/177962764-058b40fc-7e18-4b4c-9d20-a1522e93aec9.png)
-![화재_공고내용1(크기100)](https://user-images.githubusercontent.com/90809249/177965044-c9fef1e1-f9cb-4085-aee1-8d10d8956b06.png)
-![화재_공고내용1(크기100)](https://user-images.githubusercontent.com/90809249/178166234-ee9f4edc-d6e2-492c-801b-49142250384a.png)
 ![화재_메인사진(크기85)](https://user-images.githubusercontent.com/90809249/178678707-73af86d1-e1b5-40db-ac3c-fc5e6d2d0eca.png)
 ![화재_안양_메인사진(크기85)](https://user-images.githubusercontent.com/90809249/178678711-22b9231c-1cd2-495c-afdb-684e3dae4d6f.png)
-![화재_공고내용1_서울(크기100)](https://user-images.githubusercontent.com/90809249/178678741-0f448b9c-9543-4c71-9bd7-0c5b95429d98.png)
-![화재_공고내용1_안양(크기100)](https://user-images.githubusercontent.com/90809249/178678743-d09e8ff3-38bf-4337-a8ad-70ebe7c46db4.png)
+
