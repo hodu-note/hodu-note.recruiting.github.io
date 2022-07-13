@@ -24,4 +24,5 @@
 ![안양_화재공고_22년6월_카카오채널_설명_ver1 0(크기 83)](https://user-images.githubusercontent.com/90809249/177255028-7e1732e7-5351-4c60-88d5-fe9172bbd648.png)
 ![화재_메인사진(크기85)](https://user-images.githubusercontent.com/90809249/178678707-73af86d1-e1b5-40db-ac3c-fc5e6d2d0eca.png)
 ![화재_안양_메인사진(크기85)](https://user-images.githubusercontent.com/90809249/178678711-22b9231c-1cd2-495c-afdb-684e3dae4d6f.png)
-
+![화재_공고내용1_서울(크기100)](https://user-images.githubusercontent.com/90809249/178691109-014c5ca9-fb1d-4624-899d-5e076276a752.png)
+![화재_공고내용1_안양(크기100)](https://user-images.githubusercontent.com/90809249/178691120-7fc153fc-0353-4e92-9635-900a55918b37.png)
