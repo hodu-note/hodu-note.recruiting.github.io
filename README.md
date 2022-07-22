@@ -26,3 +26,8 @@
 ![화재_안양_메인사진(크기85)](https://user-images.githubusercontent.com/90809249/178678711-22b9231c-1cd2-495c-afdb-684e3dae4d6f.png)
 ![화재_공고내용1_서울(크기100)](https://user-images.githubusercontent.com/90809249/178691109-014c5ca9-fb1d-4624-899d-5e076276a752.png)
 ![화재_공고내용1_안양(크기100)](https://user-images.githubusercontent.com/90809249/178691120-7fc153fc-0353-4e92-9635-900a55918b37.png)
+![화재_메인사진_2(크기85)](https://user-images.githubusercontent.com/90809249/180396685-d308b6d7-4974-4e0a-9ea6-6808b89adc54.png)
+![화재_공고내용2_서울(크기100)](https://user-images.githubusercontent.com/90809249/180396704-8282ddd0-f840-4eaf-81d8-2c5cb43e28f6.png)
+![화재_안양_메인사진_2(크기85)](https://user-images.githubusercontent.com/90809249/180396727-13e11241-74be-4d51-af78-87fcf938714f.png)
+![화재_공고내용2_안양(크기100)](https://user-images.githubusercontent.com/90809249/180396743-743d779b-04a9-449c-9c51-3435f70f2d15.png)
+
