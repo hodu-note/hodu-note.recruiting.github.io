@@ -32,3 +32,4 @@
 ![화재_공고내용2_안양(크기100)](https://user-images.githubusercontent.com/90809249/180396743-743d779b-04a9-449c-9c51-3435f70f2d15.png)
 ![화재_메인사진_전주2(크기85)](https://user-images.githubusercontent.com/90809249/180405430-6681088b-4497-43de-8ea4-c977a61498af.png)
 ![화재_공고내용1_전주(크기100)](https://user-images.githubusercontent.com/90809249/180405456-23422530-c172-438d-8b4d-facd05d0d21b.png)
+![공고내용5_상시채용(크기100)_Ver2 0](https://user-images.githubusercontent.com/90809249/182058888-e5476636-520c-4124-9874-1c36adc24e29.png)
