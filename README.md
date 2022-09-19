@@ -40,3 +40,4 @@
 ![화재_공고내용2_전주(크기100)_Ver2 0](https://user-images.githubusercontent.com/90809249/187840058-bb99ab9d-a17b-4b69-a52f-46a0ecf6d499.png)
 ![흥국화재채![피크_화재공고_22년9월_카카오채널_설명_ver1 0(크기 82)](https://user-images.githubusercontent.com/90809249/189055075-8608ff4e-986d-40fe-8067-9399e9d710c7.png)
 ![피크_화재공고_22년9월_카카오채널_설명_ver1 0(크기 82)](https://user-images.githubusercontent.com/90809249/189055268-40fd714b-142f-466b-a891-028875ca2214.png)
+![우편알바_화재공고_22년9월_카카오채널_설명_ver1 0(크기 82)](https://user-images.githubusercontent.com/90809249/190980650-2e388bdd-ad12-44ce-8e13-4b2319b81c0a.png)
