@@ -43,3 +43,4 @@
 ![우편알바_화재공고_22년9월_카카오채널_설명_ver1 0(크기 82)](https://user-images.githubusercontent.com/90809249/190980650-2e388bdd-ad12-44ce-8e13-4b2319b81c0a.png)
 ![예가람저축은행_ver2 0(크기 100)](https://user-images.githubusercontent.com/90809249/193177437-05a4509e-e7f9-4755-911d-798b0ef3bbf1.png)
 ![예가람저축은행_ver2 0(크기 100)](https://user-images.githubusercontent.com/90809249/194968605-a025e70a-6722-4c56-b3d9-102b33c1bdd1.png)
+![화재_공고내용2_전주(크기100)_Ver2 0](https://user-images.githubusercontent.com/90809249/195273655-ac67ec2c-cf75-4dc2-98c7-8e41321f5805.png)
