@@ -45,3 +45,4 @@
 ![예가람저축은행_ver2 0(크기 100)](https://user-images.githubusercontent.com/90809249/194968605-a025e70a-6722-4c56-b3d9-102b33c1bdd1.png)
 ![화재_공고내용2_전주(크기100)_Ver2 0](https://user-images.githubusercontent.com/90809249/195273655-ac67ec2c-cf75-4dc2-98c7-8e41321f5805.png)
 ![예가람저축은행_ver2 0(크기 100)](https://user-images.githubusercontent.com/90809249/195765313-7c1855ae-85b1-4c80-aaff-d9892471b93a.png)
+![서울_화재공고_22년10월_주말(크기_100)](https://user-images.githubusercontent.com/90809249/195782582-0ce2d118-103b-4dcc-adbe-abb2f0136e72.png)
