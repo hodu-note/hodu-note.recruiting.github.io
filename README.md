@@ -48,4 +48,4 @@
 ![서울_화재공고_22년10월_주말(크기_100)](https://user-images.githubusercontent.com/90809249/195782582-0ce2d118-103b-4dcc-adbe-abb2f0136e72.png)
 ![화재_공고내용2_안양(크기100)_Ver3 0](https://user-images.githubusercontent.com/90809249/195794595-d55f8109-7f45-48ef-83d5-e47f98f0af32.png)
 ![화재_공고내용2_서울(크기100)_Ver3 0](https://user-images.githubusercontent.com/90809249/195794610-94e435dc-a49c-4127-8c0f-a47d202831d4.png)
-![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/197955799-d6c8da75-f21f-49fe-b296-85839bfa26df.png)
+![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/197963576-b8389cf7-31b5-4e54-b9f9-c044afa33620.png)
