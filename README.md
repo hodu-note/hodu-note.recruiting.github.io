@@ -50,5 +50,5 @@
 ![화재_공고내용2_서울(크기100)_Ver3 0](https://user-images.githubusercontent.com/90809249/195794610-94e435dc-a49c-4127-8c0f-a47d202831d4.png)
 ![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/197963576-b8389cf7-31b5-4e54-b9f9-c044afa33620.png)
 ![피크_화재공고_22년11월_카카오채널_설명_ver1 0(크기 82)](https://user-images.githubusercontent.com/90809249/197966920-24f74c92-beee-4f92-b9d9-b200508f4402.png)
-![화재_공고내용3_안양(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/198516550-8c7341af-1f08-41ee-b452-e76e56ee2893.png)
-![화재_공고내용3_서울(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/198516557-e6a288ad-5140-47d7-a1c3-20f32b8723f5.png)
+![화재_공고내용4(간편입사포함)_서울(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/198521306-c7f88aee-89e8-46fb-b008-713a24cfdd71.png)
+![화재_공고내용4(간편입사포함)_안양(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/198521312-40aa7e9c-21d1-4594-9e8d-ae76b0a31eb3.png)
