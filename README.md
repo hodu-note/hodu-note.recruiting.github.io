@@ -52,4 +52,4 @@
 ![피크_화재공고_22년11월_카카오채널_설명_ver1 0(크기 82)](https://user-images.githubusercontent.com/90809249/197966920-24f74c92-beee-4f92-b9d9-b200508f4402.png)
 ![화재_공고내용4(간편입사포함)_서울(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/198524275-660d8c86-b989-41f6-bc5d-62a8b48e5729.png)
 ![화재_공고내용4(간편입사포함)_안양(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/198524279-9653bcfd-6eae-4d4b-9754-6cebd00088ad.png)
-
+![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/199440106-ced0b7cf-99a4-46fd-8e6b-775271aa868d.png)
