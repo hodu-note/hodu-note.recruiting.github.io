@@ -58,3 +58,4 @@ https://user-images.githubusercontent.com/90809249/200573309-29b2d51c-79f3-4b16-
 ![화재_서울_메인사진_3(크기100)](https://user-images.githubusercontent.com/90809249/200745004-02daa0a9-c47f-4810-8834-b2b712a675fa.png)
 ![화재_공고내용5(간편입사포함)_서울(크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/200745193-6a578d31-418c-43be-84bd-b573ef1bbe6c.png)
 ![화재_공고내용4(간편입사포함)_서울(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/200759063-3ee76248-2136-4ed6-9bfd-b842d1600e6f.png)
+![화재_공고내용4(간편입사포함)_서울(크기125)_Ver3 0](https://user-images.githubusercontent.com/90809249/200760536-342b3c9d-d258-4ac2-baac-e8c3e520a0a2.png)
