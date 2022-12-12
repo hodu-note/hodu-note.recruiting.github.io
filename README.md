@@ -27,3 +27,4 @@ https://user-images.githubusercontent.com/90809249/200573309-29b2d51c-79f3-4b16-
 ![화재_공고내용4(간편입사포함)_서울(크기125)_Ver4 0](https://user-images.githubusercontent.com/90809249/205524696-20a8c69f-aa47-4def-8559-9c251d89ff9b.png)
 ![화재_공고내용4(간편입사포함)_안양(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/205524705-c67c3758-bd7e-4d48-bf59-ce319e25c68a.png)
 ![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/205849013-428ba651-6387-4966-8b50-3dca590358cd.png)
+![전주완판_공고내용(간편입사포함_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/206948991-b1aa41dc-8e1f-4476-a612-ff3bf37dde8c.png)
