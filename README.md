@@ -30,6 +30,5 @@ https://user-images.githubusercontent.com/90809249/200573309-29b2d51c-79f3-4b16-
 ![전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/207744913-5d27568f-061a-4ba8-9006-b0e91910ab8e.png)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/208553075-e6a98313-ceef-4f34-9fa0-533b2814401e.png)
 ![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/208803761-9c594995-0015-4d0c-a4e9-5fdffaea36b9.png)
-![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/208806743-c14acf8a-d65e-4981-b54c-71bcf6550fb0.png)
-![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/208828673-3c168e15-c0b8-4ac3-8359-714f01c3e493.png)
-![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/208828682-d783a865-98b8-430e-865c-b723fc878861.png)
+![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/208828742-02fae9ba-3700-4655-bcdf-bebed1a66997.png)
+![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/208828747-105eb68a-07cd-4f6c-94b9-7e1a9e215606.png)
