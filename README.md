@@ -32,3 +32,4 @@ https://user-images.githubusercontent.com/90809249/200573309-29b2d51c-79f3-4b16-
 ![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/208803761-9c594995-0015-4d0c-a4e9-5fdffaea36b9.png)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/208828742-02fae9ba-3700-4655-bcdf-bebed1a66997.png)
 ![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/208828747-105eb68a-07cd-4f6c-94b9-7e1a9e215606.png)
+![장기사고접수알바_화재공고_23년1월_ver1 0(크기 105)](https://user-images.githubusercontent.com/90809249/210924315-2d3b9ca8-3a5c-4797-bd1b-193bbf26f10d.png)
