@@ -34,3 +34,4 @@ https://user-images.githubusercontent.com/90809249/200573309-29b2d51c-79f3-4b16-
 ![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/208828747-105eb68a-07cd-4f6c-94b9-7e1a9e215606.png)
 ![장기사고접수알바_화재공고_23년1월_ver1 0(크기 105)](https://user-images.githubusercontent.com/90809249/210924315-2d3b9ca8-3a5c-4797-bd1b-193bbf26f10d.png)
 ![장기사고접수알바_화재공고_23년1월_ver2 0(크기 105)](https://user-images.githubusercontent.com/90809249/211224574-5ba1963c-5e2a-44b2-acb3-e71f2cb58930.png)
+![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/211462206-4cf4589c-d23a-4b31-be3d-013099020f4c.png)
