@@ -6,4 +6,5 @@
 ![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/212785128-b27cb84d-16ac-44d0-aec3-87f644197ea3.png)
 ![화재_공고내용(간편입사포함)_통합공고(메인110_내용135)_Ver1 0](https://user-images.githubusercontent.com/90809249/212854618-95f7af8b-dda4-4471-8510-73f2e2312e2c.png)
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/213113182-b0405276-7d3e-4a6d-a783-8d80f3c11fcf.png)
-
+![섬네일이미지(메인_100)](https://user-images.githubusercontent.com/90809249/213381718-48c01f13-0d89-4b20-a9cc-651df594f507.png)
+![내용만_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/213381778-2bbed71d-d604-4143-aa7e-bce74af674c2.png)
