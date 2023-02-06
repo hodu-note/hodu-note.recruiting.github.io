@@ -9,3 +9,4 @@
 ![섬네일이미지(메인_100)](https://user-images.githubusercontent.com/90809249/213381718-48c01f13-0d89-4b20-a9cc-651df594f507.png)
 ![내용만_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/213381778-2bbed71d-d604-4143-aa7e-bce74af674c2.png)
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/216859289-8d1774c7-5586-427b-813c-f760be35edb9.png)
+![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/216905077-e1ea7458-485d-4602-ac46-e7b8ba56f0c8.png)
