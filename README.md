@@ -8,3 +8,4 @@
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/213113182-b0405276-7d3e-4a6d-a783-8d80f3c11fcf.png)
 ![섬네일이미지(메인_100)](https://user-images.githubusercontent.com/90809249/213381718-48c01f13-0d89-4b20-a9cc-651df594f507.png)
 ![내용만_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/213381778-2bbed71d-d604-4143-aa7e-bce74af674c2.png)
+![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/216859289-8d1774c7-5586-427b-813c-f760be35edb9.png)
