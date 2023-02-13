@@ -11,3 +11,4 @@
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/216859289-8d1774c7-5586-427b-813c-f760be35edb9.png)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/216905077-e1ea7458-485d-4602-ac46-e7b8ba56f0c8.png)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/217685131-74d43020-5d74-400f-b377-a7d7f11134e9.png)
+![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/218398147-499b4d7e-97ae-4e70-a884-077a0fcef39c.png)
