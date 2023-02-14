@@ -13,3 +13,4 @@
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/217685131-74d43020-5d74-400f-b377-a7d7f11134e9.png)
 ![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/218398147-499b4d7e-97ae-4e70-a884-077a0fcef39c.png)
 ![화재_전주_공고내용(간편입사포함)_통합공고(메인110_내용135)_Ver1 0](https://user-images.githubusercontent.com/90809249/218642158-0b7c0f8a-a596-44c9-afac-d305fe7f7302.png)
+![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/218679830-66f616c8-b13b-4562-a007-51a1b9c9a7a1.png)
