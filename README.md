@@ -17,4 +17,4 @@
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/218749774-2d1e6fc1-0599-4420-8d21-cbc0c69d6c72.png)
 ![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/218893095-fa653d81-ed51-4fd5-8557-7201baff7977.png)
 ![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/218956676-dae2823a-f820-4011-aada-949c2284fb75.png)
-![영업지원_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/220019621-1753cc7a-685c-416d-ab9d-e9d4cc5e18e6.png)
+![영업지원_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/220020822-3946c818-b2ff-4b6f-9a02-d840c407c45e.png)
