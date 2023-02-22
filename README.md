@@ -1,7 +1,5 @@
 ![간편입사(딥핑크)_1](https://user-images.githubusercontent.com/90809249/135040120-c26a3307-8e53-49a8-82a7-325d17d4c915.gif)
 ![간편입사(블루)_1](https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif)
-![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/211462206-4cf4589c-d23a-4b31-be3d-013099020f4c.png)
-![23년_전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/211953201-33ac00e1-10e5-4ba8-9166-75f2ca7aaa39.png)
 ![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/211999060-b21644c3-46d4-4117-9541-cd63701b3317.png)
 ![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/212785128-b27cb84d-16ac-44d0-aec3-87f644197ea3.png)
 ![화재_공고내용(간편입사포함)_통합공고(메인110_내용135)_Ver1 0](https://user-images.githubusercontent.com/90809249/212854618-95f7af8b-dda4-4471-8510-73f2e2312e2c.png)
@@ -18,3 +16,4 @@
 ![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/218893095-fa653d81-ed51-4fd5-8557-7201baff7977.png)
 ![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/218956676-dae2823a-f820-4011-aada-949c2284fb75.png)
 ![영업지원_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/220020822-3946c818-b2ff-4b6f-9a02-d840c407c45e.png)
+![23년_장기사고접수팀_공고내용(_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/220534984-48c600f5-20d6-4dc2-a8fe-2b599e3ba550.png)
