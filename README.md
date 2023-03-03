@@ -1,6 +1,5 @@
 ![간편입사(딥핑크)_1](https://user-images.githubusercontent.com/90809249/135040120-c26a3307-8e53-49a8-82a7-325d17d4c915.gif)
 ![간편입사(블루)_1](https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif)
-![화재_공고내용(간편입사포함)_통합공고(크기125)_Ver2 0](https://user-images.githubusercontent.com/90809249/211999060-b21644c3-46d4-4117-9541-cd63701b3317.png)
 ![화재_공고내용3_전주(크기125)_Ver1 0](https://user-images.githubusercontent.com/90809249/212785128-b27cb84d-16ac-44d0-aec3-87f644197ea3.png)
 ![화재_공고내용(간편입사포함)_통합공고(메인110_내용135)_Ver1 0](https://user-images.githubusercontent.com/90809249/212854618-95f7af8b-dda4-4471-8510-73f2e2312e2c.png)
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/213113182-b0405276-7d3e-4a6d-a783-8d80f3c11fcf.png)
@@ -19,3 +18,4 @@
 ![영업지원_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/221456953-dd9fa571-ce22-4ce5-bb07-f595370735f6.png)
 ![장기사고접수알바_화재공고_23년1월_ver1 0메인사진(크기 105)](https://user-images.githubusercontent.com/90809249/222610737-366b0819-0977-4671-8e29-637ab9605076.png)
 ![장기사고접수알바_화재공고_23년1월_ver1 0내용(크기 105)](https://user-images.githubusercontent.com/90809249/222610755-f29b1198-c9e5-4f44-91d0-f41c8a6fb158.png)
+![장기사고접수알바_화재공고_23년1월_ver1 0(크기 105)](https://user-images.githubusercontent.com/90809249/222616346-0c0f3633-fe40-4860-a97c-1ef43b9c4f96.png)
