@@ -17,4 +17,4 @@
 ![영업지원_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/221456953-dd9fa571-ce22-4ce5-bb07-f595370735f6.png)
 ![장기사고접수알바_화재공고_23년1월_ver1 0메인사진(크기 105)](https://user-images.githubusercontent.com/90809249/222610737-366b0819-0977-4671-8e29-637ab9605076.png)
 ![장기사고접수알바_화재공고_23년1월_ver1 0내용(크기 105)](https://user-images.githubusercontent.com/90809249/222610755-f29b1198-c9e5-4f44-91d0-f41c8a6fb158.png)
-![장기사고접수알바_화재공고_23년1월_ver1 0(크기 105)](https://user-images.githubusercontent.com/90809249/222616346-0c0f3633-fe40-4860-a97c-1ef43b9c4f96.png)
+![장기사고접수알바_화재공고_23년1월_ver1 0(크기 105)](https://user-images.githubusercontent.com/90809249/222617098-aa36d670-00dc-42ff-9867-b1532b5d1aee.png)
