@@ -18,3 +18,4 @@
 ![장기사고접수알바_화재공고_23년1월_ver1 0메인사진(크기 105)](https://user-images.githubusercontent.com/90809249/222610737-366b0819-0977-4671-8e29-637ab9605076.png)
 ![장기사고접수알바_화재공고_23년1월_ver1 0내용(크기 105)](https://user-images.githubusercontent.com/90809249/222610755-f29b1198-c9e5-4f44-91d0-f41c8a6fb158.png)
 ![장기사고접수알바_화재공고_23년1월_ver1 0(크기 105)](https://user-images.githubusercontent.com/90809249/222617098-aa36d670-00dc-42ff-9867-b1532b5d1aee.png)
+![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/224548917-f754904b-a0c3-430e-bfd6-79971cf4bcac.png)
