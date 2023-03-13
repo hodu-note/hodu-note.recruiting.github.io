@@ -20,3 +20,4 @@
 ![장기사고접수알바_화재공고_23년1월_ver1 0(크기 105)](https://user-images.githubusercontent.com/90809249/222617098-aa36d670-00dc-42ff-9867-b1532b5d1aee.png)
 ![화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/224549273-1453aedb-d33d-4ea9-a901-aabe908a9de3.png)
 ![전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/224596118-3393dae5-2216-4069-863c-697495453f55.png)
+![티스토리_통합공고(내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/224632175-7356ea7e-4195-467f-a952-29f26981be80.png)
