@@ -22,3 +22,4 @@
 ![전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/224596118-3393dae5-2216-4069-863c-697495453f55.png)
 ![티스토리_통합공고(내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/224632175-7356ea7e-4195-467f-a952-29f26981be80.png)
 ![화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver1 0](https://user-images.githubusercontent.com/90809249/224648518-7a751900-a31a-482d-accf-c87ee43d6abb.png)
+![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/224891255-a60818e0-f195-4004-9b2f-79fd64b4a225.png)
