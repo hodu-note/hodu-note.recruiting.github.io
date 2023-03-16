@@ -25,3 +25,5 @@
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/224891255-a60818e0-f195-4004-9b2f-79fd64b4a225.png)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/224892585-5a30cb27-d2a9-41f4-9185-34bc8d7acab6.png)
 ![제목을 입력해주세요_-001](https://user-images.githubusercontent.com/90809249/225533208-63ca74b5-e970-41f7-93e9-8c17af026bd8.png)
+![간편입사지원하기_3](https://user-images.githubusercontent.com/90809249/225537137-6e347c72-acf5-44e5-8c4d-2c7529f741dc.gif)
+![카카오톡문의하기_3](https://user-images.githubusercontent.com/90809249/225537146-928e267d-f061-4274-8c49-7c68240eb099.gif)
