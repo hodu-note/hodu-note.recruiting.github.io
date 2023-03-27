@@ -31,3 +31,4 @@
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/225570706-cbd2267f-89fc-4140-8a1e-b36e406beffd.png)
 ![23년_전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/225784043-d87c4eb9-d858-40f0-b018-97bc5fc1f2d1.png)
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/226249121-26a3da7f-462f-427a-be23-1351a0883760.png)
+![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/227825566-655dda80-37ad-446a-a3b9-dd234ebeb400.png)
