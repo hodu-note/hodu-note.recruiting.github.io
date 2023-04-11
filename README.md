@@ -35,3 +35,5 @@
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://user-images.githubusercontent.com/90809249/229030349-b3f5f7d3-d01a-40a4-966c-2f7543b9d1e7.png)
 ![23년_전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/229453698-db95e519-1e3e-45da-aa57-fe57d56b8053.png)
 ![23년_전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/229459601-74906d97-978f-45a7-b5a5-c069838c268e.png)
+![간편입사지원(흔들기)](https://user-images.githubusercontent.com/90809249/231067136-8ed40fb8-aee4-4306-a9cd-a9146fbeaf0a.gif)
+![카카오문의(흔들기)](https://user-images.githubusercontent.com/90809249/231067157-ef07a983-3096-49be-8d16-0c1df8d57485.gif)
