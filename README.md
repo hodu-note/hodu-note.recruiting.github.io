@@ -1,5 +1,7 @@
 ![간편입사지원(흔들기)](https://user-images.githubusercontent.com/90809249/231067136-8ed40fb8-aee4-4306-a9cd-a9146fbeaf0a.gif)
 ![카카오문의(흔들기)](https://user-images.githubusercontent.com/90809249/231067157-ef07a983-3096-49be-8d16-0c1df8d57485.gif)
+![섬네일이미지(메인_100)](https://user-images.githubusercontent.com/90809249/213381718-48c01f13-0d89-4b20-a9cc-651df594f507.png)
+![티스토리_통합공고(내용135)_Ver3 0](https://user-images.githubusercontent.com/90809249/232671994-0b5dcced-0d78-4a03-82cd-23890fc1f833.png)
 ![간편입사(딥핑크)_1](https://user-images.githubusercontent.com/90809249/135040120-c26a3307-8e53-49a8-82a7-325d17d4c915.gif)
 ![간편입사(블루)_1](https://user-images.githubusercontent.com/90809249/135040125-74b96173-4be0-4be8-95bb-dde290320c51.gif)
 ![화재_공고내용(간편입사포함)_통합공고(메인110_내용135)_Ver1 0](https://user-images.githubusercontent.com/90809249/212854618-95f7af8b-dda4-4471-8510-73f2e2312e2c.png)
