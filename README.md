@@ -38,3 +38,4 @@
 ![화재_서울 안양_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/231990481-170f04d3-2339-489d-b96d-ddee576cbe5d.png)
 ![화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver1 0](https://user-images.githubusercontent.com/90809249/231990522-00883419-1287-4d3a-bec8-b99ef0738947.png)
 ![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/232360082-31128a24-dd56-4845-9dd3-a9b93da3580a.png)
+![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://user-images.githubusercontent.com/90809249/234792284-e730721a-4bd7-4c2a-8b64-302fe71615f8.png)
