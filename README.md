@@ -42,3 +42,4 @@
 ![23년_장기사고접수팀_공고내용(_크기100)_Ver1 0](https://user-images.githubusercontent.com/90809249/235058831-38602ff2-25e6-4485-a556-d9b0948fcb32.png)
 ![2023_완판공고](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/06f56236-62d8-48b1-bc09-0bd681161b0b)
 ![23년_장기사고접수팀](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/1b81ff0a-810a-4f8c-9ce4-c18d658cba8a)
+![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/d625b154-76b3-473a-97d3-ca57bf76d746)
