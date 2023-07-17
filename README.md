@@ -45,3 +45,5 @@
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/d625b154-76b3-473a-97d3-ca57bf76d746)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/945cc076-4a10-4a06-be00-37d087fc918b)
 ![피크](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/c7f41ae3-61d0-4270-b90a-e3b625f474a5)
+![23년7월_인바운드(서울)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/74a29630-2360-4e1f-9efe-05c5c2d7144c)
+![23년7월_인바운드(전주)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/b640c202-f6c2-455e-80e6-b34c7bba3236)
