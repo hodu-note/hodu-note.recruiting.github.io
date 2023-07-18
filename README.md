@@ -47,3 +47,4 @@
 ![피크](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/c7f41ae3-61d0-4270-b90a-e3b625f474a5)
 ![23년7월_인바운드(서울)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/74a29630-2360-4e1f-9efe-05c5c2d7144c)
 ![23년7월_인바운드(전주)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/b640c202-f6c2-455e-80e6-b34c7bba3236)
+![티스토리_통합공고(내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/2e9f6f61-77a9-400d-8d06-28085dcef00f)
