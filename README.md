@@ -50,3 +50,4 @@
 ![티스토리_통합공고(내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/2e9f6f61-77a9-400d-8d06-28085dcef00f)
 ![23년_장기사고접수팀_공고내용(_크기100)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/0cbb6215-cf60-417f-8054-6546887c5123)
 ![23년_전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/7f888066-05ea-4c2d-91d9-bb05c9c8b6ae)
+![23년_장기사고접수팀_공고내용(_크기100)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/09f554e0-70fd-460d-af76-6aebbc660d29)
