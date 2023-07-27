@@ -52,3 +52,4 @@
 ![23년_전주완판_공고내용(간편입사없음_크기100)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/7f888066-05ea-4c2d-91d9-bb05c9c8b6ae)
 ![23년_장기사고접수팀_공고내용(_크기100)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/09f554e0-70fd-460d-af76-6aebbc660d29)
 ![화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/2c1d258b-a5f3-4a92-8a64-97c60e2b687a)
+![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/9c29cee5-8c09-48f0-8fb9-144deb64c1ef)
