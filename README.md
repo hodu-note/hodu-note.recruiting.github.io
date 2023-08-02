@@ -56,3 +56,4 @@
 ![23년_장기사고접수팀_공고내용(_크기100)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/3ce2fe6d-b249-40c1-94c4-9f5c54e697bb)
 ![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/1e6c9655-1310-4266-8ea5-e415eab4614a)
 ![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/6d608a40-54cc-459a-9aed-71f3d1314519)
+![장기사고접수알바_화재공고_23년1월_ver3 0(크기 105)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/ca93ff06-afc8-4721-a809-a572cbeffa6f)
