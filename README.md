@@ -13,3 +13,4 @@
 ![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/01c37cb5-1950-4484-a425-fe02c0827981)
 ![화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/b424c97e-a862-47d6-9912-31ae25f4b9d9)
 ![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/799a29c3-ed3a-4237-bc43-7515f566fa8f)
+![23년8월_인바운드(전주)_2차](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/2ecc624a-dec9-4ce6-a6f1-20abba218446)
