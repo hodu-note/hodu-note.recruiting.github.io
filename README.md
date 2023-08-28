@@ -16,3 +16,4 @@
 ![23년8월_인바운드(전주)_2차](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/2ecc624a-dec9-4ce6-a6f1-20abba218446)
 ![장기사고접수알바_화재공고_23년9월_ver1 0(크기 105)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/01e3ee65-1fb1-4bb2-adcf-69cf8c16b932)
 ![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/f3f31f10-a2fa-46cb-9f33-f6b684292e32)
+![23년_장기사고접수팀_공고내용(_크기100)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/70c3723c-c333-4d95-a7df-16645f6c5eeb)
