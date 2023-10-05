@@ -20,3 +20,4 @@
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/6b23fa88-085f-4ccb-8976-1134190b3560)
 ![피크공고](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/1dec9899-0301-4f8a-b156-aa4aeeb44a12)
 ![우편아르바이트](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/ac4610d0-10a3-4462-9eda-92a5f3b72fc5)
+![23년_장기사고접수팀](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/bdcd7d78-6e2b-45ca-9f9d-eb601d415b8e)
