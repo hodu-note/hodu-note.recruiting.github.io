@@ -23,3 +23,4 @@
 ![23년_장기사고접수팀](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/bdcd7d78-6e2b-45ca-9f9d-eb601d415b8e)
 ![23년_인바운드(서울)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/550ec83b-ae09-4c1c-b596-155c03c1e6ce)
 ![23년_인바운드(서울 안양)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/c261e694-8ead-496c-9abc-771896d15a07)
+![화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/7930efd9-a451-4619-ae9e-e36e7b7d06b7)
