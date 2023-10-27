@@ -26,3 +26,4 @@
 ![화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/7930efd9-a451-4619-ae9e-e36e7b7d06b7)
 ![22년_서울 공고](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/6195014a-adf4-4485-bc79-05444a02e601)
 ![22년_전주 공고](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/b8460cde-be65-44f3-a42f-52152998b165)
+![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/04e5408c-0370-458e-adf9-7a9e50911c1f)
