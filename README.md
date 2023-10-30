@@ -28,3 +28,4 @@
 ![22년_전주 공고](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/b8460cde-be65-44f3-a42f-52152998b165)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/04e5408c-0370-458e-adf9-7a9e50911c1f)
 ![서울_화재공고_23년_주말(크기_103)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/03703bf1-c906-4cff-ad23-f4517f7edaca)
+![23년_인바운드(전주)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/864b593c-79a6-4829-8985-48cf94c2164f)
