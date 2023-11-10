@@ -31,3 +31,4 @@
 ![23년_인바운드(전주)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/864b593c-79a6-4829-8985-48cf94c2164f)
 ![23년_피크타임](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/1fe42cad-816e-427d-a5ba-328e888c9189)
 ![23년_인바운드(서울 안양)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/d06ffd05-cbcb-46e7-a3e8-cc40b9722896)
+![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver5 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/5dd21471-c1a1-4c79-ba12-c271d4d81134)
