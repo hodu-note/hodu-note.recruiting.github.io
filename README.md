@@ -33,3 +33,4 @@
 ![23년_인바운드(서울 안양)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/d06ffd05-cbcb-46e7-a3e8-cc40b9722896)
 ![화재_서울만 공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver5 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/5dd21471-c1a1-4c79-ba12-c271d4d81134)
 ![피크_공고내용(간편입사포함_크기103)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/be4853b2-020a-4435-8a43-bd292cb5ef88)
+![화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/a248566a-75f8-45b0-82de-6fa638ce67a3)
