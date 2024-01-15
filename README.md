@@ -40,3 +40,4 @@
 ![피크_공고내용(간편입사포함_크기103)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/58762ff8-5dd0-4bea-881a-a2d32f7e38ac)
 ![24년_화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver4 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/32646187-2edd-48f6-8d20-8ee2c9d87e2b)
 ![장기사고접수알바_화재공고_24년1월_ver1 0(크기 105)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/57ebf9d0-be82-4c59-83a3-ae614c0bba17)
+![예가람저축은행_ver3 0(크기 100)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/3d1a493b-6cd1-40f0-b532-0529b44bad6c)
