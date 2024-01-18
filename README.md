@@ -43,3 +43,4 @@
 ![예가람저축은행_ver3 0(크기 100)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/3d1a493b-6cd1-40f0-b532-0529b44bad6c)
 ![24년_화재_서울_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver4 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/c9f0ec77-e04d-43b3-9845-f3978f733c18)
 ![24년_화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/473ea871-3785-41a0-b4db-494ff0161a65)
+![24년_화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/a22d2348-eb86-4de1-a0de-6608cbbdb1d9)
