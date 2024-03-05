@@ -49,3 +49,4 @@
 ![24년_화재_서울_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver4 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/9e489dfd-9557-47c2-91b6-b1fb9ebfd889)
 ![24년_화재_서울_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver4 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/73166a9f-4cbd-439c-99e5-aa1a002301ce)
 ![24년_화재_서울_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver4 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/c5d16d7c-ee43-44a1-8a15-699eee5a28ad)
+![24년_화재_전주_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver4 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/9fc9544f-29d8-43e5-9c76-cd8b94fef0f9)
