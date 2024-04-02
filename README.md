@@ -6,3 +6,4 @@
 ![★24년_안양(교육만)_통합공고(메인90_내용120)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/284173fd-a4cc-40be-8678-65199cb86c5f)
 ![★24년_서울_통합공고(메인90_내용120)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/2a0d41a0-f9e3-4033-93ce-276959a2ff6d)
 ![★24년_안양(교육만)_통합공고(메인90_내용120)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/27fbfc2c-9b4f-44c8-a08a-8ed9823fb478)
+![24년_화재_자동차전담_공고내용(간편입사포함)_통합공고(메인100_내용135)_Ver1 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/a8872041-6418-40ac-87c8-257906ad522e)
