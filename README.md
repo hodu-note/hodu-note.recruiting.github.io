@@ -12,3 +12,4 @@
 ![★24년_안양_통합공고(메인90_내용110)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/53828abc-37d3-41ac-9371-0e59c122d645)
 ![★24년_전주_통합공고(메인90_내용110)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/df2cf7a4-ab85-4558-a42e-2e3589883b93)
 ![★24년_서울_통합공고(메인100_내용100)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/23ea287c-ae50-4752-a7df-87b302fd5343)
+![★24년_전주_통합공고(메인90_내용110)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/b7cd9dab-c4e9-4630-969f-664739ee5a2d)
