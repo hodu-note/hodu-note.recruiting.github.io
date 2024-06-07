@@ -15,3 +15,4 @@
 ![★24년_전주_통합공고(메인90_내용110)_Ver2 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/b7cd9dab-c4e9-4630-969f-664739ee5a2d)
 ![피크_공고내용(간편입사포함_크기103)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/69cdc9f0-5ed8-4eeb-b83c-882115d7bc0a)
 ![★24년_서울_통합공고(메인100_내용100)_Ver3 0(상시채용)](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/a4b13ba2-efd8-42cc-98fc-053fdfee5cde)
+![★24년_서울_통합공고(메인100_내용100)_Ver3 0](https://github.com/hodu-note/hodu-note.recruiting.github.io/assets/90809249/4da61482-0cd3-4d88-9427-6d81a299bed9)
