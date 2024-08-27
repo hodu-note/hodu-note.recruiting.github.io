@@ -20,3 +20,4 @@
 ![★24년_서울_상시채용(메인100_내용100)_Ver3 0](https://github.com/user-attachments/assets/d68c0134-aed3-4e97-b846-f8bedc07e658)
 ![★24년_전주_통합공고(메인90_내용110)_Ver2 0](https://github.com/user-attachments/assets/ee28f994-2f44-45c7-8e88-29756844573b)
 ![24년 채용공고_하반기](https://github.com/user-attachments/assets/b9c7b995-5c8f-44f3-81e0-14ee99702587)
+![화재_전주_2409](https://github.com/user-attachments/assets/de19d663-8f4d-4bba-b9b2-dfa221294c25)
