@@ -26,3 +26,4 @@
 ![24년_우편알바](https://github.com/user-attachments/assets/ca3fcc12-a85f-41b6-9f6c-0137bca1830b)
 ![예가람공고_2410](https://github.com/user-attachments/assets/45948b00-70f2-429f-982e-b9fd1d0d6492)
 ![24년 채용공고_하반기(서울)](https://github.com/user-attachments/assets/61233aaa-e674-4a35-9f36-af7dba13097f)
+![예가람공고_2410](https://github.com/user-attachments/assets/5f617e31-9e9f-407c-90da-52a4a71b3aa9)
