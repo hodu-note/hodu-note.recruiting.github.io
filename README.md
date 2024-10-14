@@ -27,3 +27,4 @@
 ![예가람공고_2410](https://github.com/user-attachments/assets/45948b00-70f2-429f-982e-b9fd1d0d6492)
 ![24년 채용공고_하반기(서울)](https://github.com/user-attachments/assets/61233aaa-e674-4a35-9f36-af7dba13097f)
 ![예가람공고_2410](https://github.com/user-attachments/assets/5f617e31-9e9f-407c-90da-52a4a71b3aa9)
+![24년_장기사고접수](https://github.com/user-attachments/assets/d57c1fdd-4567-49ff-bb15-61e9c9177306)
