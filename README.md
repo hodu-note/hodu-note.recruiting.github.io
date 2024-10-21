@@ -29,3 +29,4 @@
 ![예가람공고_2410](https://github.com/user-attachments/assets/5f617e31-9e9f-407c-90da-52a4a71b3aa9)
 ![24년_장기사고접수](https://github.com/user-attachments/assets/d57c1fdd-4567-49ff-bb15-61e9c9177306)
 ![24년_장기사고접수](https://github.com/user-attachments/assets/92068d26-df7a-4df3-a8a4-e0e3fe830c2e)
+![24년_장기사고접수](https://github.com/user-attachments/assets/b24add35-05fa-4c59-acb1-71c54ad6322d)
