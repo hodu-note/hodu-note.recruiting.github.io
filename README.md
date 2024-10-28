@@ -31,3 +31,4 @@
 ![24년_장기사고접수](https://github.com/user-attachments/assets/92068d26-df7a-4df3-a8a4-e0e3fe830c2e)
 ![24년_장기사고접수](https://github.com/user-attachments/assets/b24add35-05fa-4c59-acb1-71c54ad6322d)
 ![24년 채용공고_하반기(서울)](https://github.com/user-attachments/assets/a8979015-8216-44d7-844a-91a6b3277f0a)
+![24년_장기사고접수](https://github.com/user-attachments/assets/0a6be7ba-df1f-46ae-a371-45b5b8fbec20)
