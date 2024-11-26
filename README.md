@@ -34,3 +34,4 @@
 ![24년_장기사고접수](https://github.com/user-attachments/assets/0a6be7ba-df1f-46ae-a371-45b5b8fbec20)
 ![24년_장기사고접수](https://github.com/user-attachments/assets/1c0797bc-9d39-41d6-a7f1-e7bdcf580402)
 ![24년_채용공고](https://github.com/user-attachments/assets/2312c049-f7a4-4246-b58d-e5d829dfa6bf)
+![24년_장기사고접수](https://github.com/user-attachments/assets/bae21cbc-56eb-40d6-93dc-f71edfc8a55f)
