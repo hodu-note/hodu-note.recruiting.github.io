@@ -37,3 +37,4 @@
 ![24년_장기사고접수](https://github.com/user-attachments/assets/bae21cbc-56eb-40d6-93dc-f71edfc8a55f)
 ![24년_채용공고(전주)](https://github.com/user-attachments/assets/9553aae3-a754-4c85-bfbc-bc8fdfc67586)
 ![예가람공고_2412](https://github.com/user-attachments/assets/9cd1029f-baa6-48a8-b384-0943deb624b1)
+![예가람공고_2412](https://github.com/user-attachments/assets/08a7221b-85bf-4d39-984c-98ed8f69123c)
