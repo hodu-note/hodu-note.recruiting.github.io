@@ -40,3 +40,4 @@
 ![예가람공고_2412](https://github.com/user-attachments/assets/08a7221b-85bf-4d39-984c-98ed8f69123c)
 ![예가람공고_2412](https://github.com/user-attachments/assets/fc5a2e34-1b6e-48e0-9d7b-79e8f37fb2ce)
 ![25년_채용공고(서울 안양)](https://github.com/user-attachments/assets/78cd0842-1c49-42bb-b1b4-845dcfd433fb)
+![24년_채용공고(전주)](https://github.com/user-attachments/assets/47872b98-4005-4973-8617-12084b6c5ca2)
