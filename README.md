@@ -13,3 +13,4 @@
 ![Image](https://github.com/user-attachments/assets/93ad41f9-01ef-496c-aa88-7a3d13c9b6da)
 ![Image](https://github.com/user-attachments/assets/2a4435cc-0347-422d-8872-6e8f824ec7a3)
 ![Image](https://github.com/user-attachments/assets/9e7b2b60-3f2b-4080-89db-04b0a86b730a)
+![25년_채용공고(안양)_ver3 0](https://github.com/user-attachments/assets/daffa53d-8bfd-4cc8-8156-07135c6c208c)
